@@ -1,1 +1,1 @@
-# Dinushika-Repo-2
+# Dinu-Repo-2
